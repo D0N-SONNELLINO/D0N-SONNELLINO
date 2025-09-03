@@ -1,16 +1,24 @@
-## Hi there 👋
+![Image](https://github.com/user-attachments/assets/5e868fb4-a532-4abf-a2bc-49f0aacc5123)
 
-<!--
-**D0N-SONNELLINO/D0N-SONNELLINO** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+┏━━━━°⌜ 🍷 ⌟°━━━━┓    -ˋˏ [𝚜𝚘𝚗𝚗𝚎𝚕𝚕𝚒𝚗𝚘 | 𝚑𝚎/𝚑𝚒𝚖] ˎˊ- 
+
+
+
+
+
+
+
+
+
+--------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+
+
+
+
+
+
+┗━━━━°⌜ 🌃 ⌟°━━━━┛ 𝚑𝚘𝚠 𝚍𝚘 𝚢𝚘𝚞 𝚞𝚜𝚎 𝚙𝚑𝚘𝚗𝚎𝚜 bruv.
